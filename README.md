@@ -1,3 +1,5 @@
+![image alt](https://github.com/nurzafreendaania/About-me/blob/b995cb64b21c5ae1936f439b3c59ff563cf369a1/photo_2024-07-10_21-59-54.jpg)<br>
+
 Hi 👋 My name is Nur Zafreen Daania Binti Mohd Wazeer
 =====================================================
 
